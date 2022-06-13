@@ -1,5 +1,10 @@
 ### Hi there 👋
 
+Goh Aik Leong 
+
+### Im a Student of NYP taking DIT in Year 2
+⚡ Fun fact: I like to sleep and eat 
+
 <!--
 **Aikleong7/Aikleong7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
