@@ -2,7 +2,7 @@
 
 Goh Aik Leong 
 
-### Im a Student of NYP taking DIT in Year 2
+### Im a Student of NYP taking DIT in Year 3
 ⚡ Fun fact: I like to sleep and eat 
 
 <!--
